@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently a Computer Science major at Murang'a University of Technology
+I am currently a Computer Scientist, Software Engineer and AI Innovator
 
 
 ## 🌐 Socials:
